@@ -1,4 +1,4 @@
 # Animated-Infographic-Video-climate-change
- //NAME : Anushiya R 
+ NAME : Anushiya R 
 
- //DESIGNATION : Graphic Designing 
+ DESIGNATION : Graphic Designing 
